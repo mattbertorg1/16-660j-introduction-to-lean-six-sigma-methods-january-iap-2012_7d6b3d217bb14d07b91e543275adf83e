@@ -1,0 +1,1 @@
+# 16-660j-introduction-to-lean-six-sigma-methods-january-iap-2012_7d6b3d217bb14d07b91e543275adf83e
